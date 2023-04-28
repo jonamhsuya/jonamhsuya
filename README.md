@@ -1,4 +1,4 @@
-– 👋 Hey! I’m Ayush, a first-year student at the University of Texas at Austin!
+– 👋 Hey! I’m Ayush, an incoming junior at the University of Texas at Austin!
 
 – 💻📈📚 I'm deeply passionate about computer science, economics, and public policy. While I will be majoring in computer science, I seek to combine these three fields throughout my time in college and in my career as well.
 
